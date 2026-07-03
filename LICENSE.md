@@ -1,4 +1,4 @@
-# 
+# Avançado Advanced SystemCare predefinições para Mac OS | Ultimato Advanced SystemCare predefinições para PC Windows. Com otimizacao de memoria e configuracoes privadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
